@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RitwikMittal
-- 👀 I’m Advancing Technology by AI ML &
+- 👀 MLAI
 - 💞️ I’m looking to collaborate on learning something new together
 - 📫 How to reach me ...
 mail me at ritwikmittal50@outlook.com
