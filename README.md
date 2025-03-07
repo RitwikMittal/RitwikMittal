@@ -2,7 +2,7 @@
 - 👀 MLAI
 - 💞️ I’m looking to collaborate on learning something new together
 - 📫 How to reach me ...
-mail me at ritwikmittal50@outlook.com
+mail me at mittalritwik50@gmail.com
 
 
 <!---
